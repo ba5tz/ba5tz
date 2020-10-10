@@ -3,7 +3,7 @@
 ## I'm a Husband, and Father!
 - 🌱 I’m currently learning everything
 - 👯 I’m looking to collaborate with other content creators
-- ⚡ Fun fact: Love Aquascepe
+- ⚡ Fun fact: Love Aquascape
 
 ### Connect with me:
 
