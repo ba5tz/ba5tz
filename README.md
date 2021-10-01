@@ -1,6 +1,6 @@
 ### Hi there, I'm Andi Setiadi - [website] 👋
 
-## I'm a Husband, and Father!
+## I'm a Excel Geek!
 - 🌱 I’m currently learning everything
 - 👯 I’m looking to collaborate with other content creators
 - ⚡ Fun fact: Love Aquascape
